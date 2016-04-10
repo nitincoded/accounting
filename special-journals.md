@@ -13,3 +13,6 @@ A Cash Book, which combines receipts and payments, may be used instead of the Ca
 
 Illustrations containing columns in accounting journals  
 http://www.accounting-basics-for-students.com/accounting-journals.html
+
+Christy Garrett's page (look up accounting notes)  
+http://christygarrett.weebly.com/
